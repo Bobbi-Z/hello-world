@@ -5,3 +5,4 @@ What rabbit hole have I fallen into. Nevermind. It's sink or swim time - and I l
 testing theoy
 wut
 
+what is life
